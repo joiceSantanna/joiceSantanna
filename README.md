@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+![](https://media.tenor.com/G2yZJgS0RjIAAAAM/shame-blushing-girl.gif) 
+
